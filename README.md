@@ -7,22 +7,19 @@
 
 ---
 
-💡- Hi, I’m **Urson**!  
- After 3+ years of experience as a Market Intelligence Analyst, I transitioned into IT to expand my expertise in coding, AI, and Data Science.  
- With months of preparation and currently completing an intensive 7-month BeCode program, I’m excited to embark on the next phase of my journey in **data-driven innovation**.  
+After 3+ years of experience as a Market Intelligence Analyst, I transitioned into IT to expand my expertise in coding, AI, and Data Science.  
+With months of preparation and currently completing an intensive 7-month BeCode program, I’m excited to embark on the next phase of my journey in **data-driven innovation**.  
 
 
 🎓 **Educational Background**:  
 - 🏆 **Master’s in International and Sustainable Finance**  
 - 🎯 **Bachelor’s in Marketing**  
 
-🎵 **Outside of Work**:  
-I enjoy **playing the piano**, **producing electronic music**, and immersing myself in **cross-cultural experiences**, all of which fuel my creativity and innovative thinking.  
+🎵 I enjoy **playing the piano**, **producing electronic music**, and immersing myself in **cross-cultural experiences**, all of which fuel my creativity and innovative thinking.  
 
 ---
 
-📫 **Let’s Connect**:  
-🔗 [LinkedIn](https://linkedin.com/in/ursoncallens)  
+📫 **Let’s Connect** via 🔗 [LinkedIn](https://linkedin.com/in/ursoncallens)  
 
 ---
 
